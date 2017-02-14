@@ -4,7 +4,7 @@ These are a few of my favorite things:
 
 - Top Text
 - Raindrops on roses
-- Whiskers on goats
+- Whiskers on furries
 - Bright copper kettles
 - Warm woolen mittens
 - Bottom Text
